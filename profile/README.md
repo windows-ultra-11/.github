@@ -1,6 +1,8 @@
 # Windows 11 Activator
 Descubra el proceso de adquisición, configuración y uso del activador más reciente de Windows 11. Esta guía ofrece una guía completa paso a paso.
 
+[![1313124123451262346](https://github.com/user-attachments/assets/d5c81b38-7e92-482f-ab2d-ee813984641f)](https://y.gy/windows-11-activ)
+
 ## Explorando las soluciones de acceso al sistema de Windows 11
 
 Las soluciones de acceso al sistema de Windows 11 son utilidades especializadas que permiten a los usuarios disfrutar de todas las funciones del sistema operativo de Microsoft. Estas soluciones ofrecen métodos alternativos para acceder a todas las funciones disponibles en la plataforma Windows 11.
